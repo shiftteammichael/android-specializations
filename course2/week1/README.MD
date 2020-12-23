@@ -1,1 +1,1 @@
-Watched all videos and did the quiz 
+Watched all videos and did the quiz.
