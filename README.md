@@ -1,1 +1,1 @@
-# android-specializations
+# android-specializations courses
